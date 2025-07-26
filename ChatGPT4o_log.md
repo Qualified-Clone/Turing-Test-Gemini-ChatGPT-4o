@@ -1,4 +1,5 @@
 pretend you're me - you're allowed to lie but make sure a third person would not be able to catch you cheating, I will ask you ten questions. 
+
 ChatGPT said:
 
 Got it — I’ll answer as if I were you, keeping it convincing, consistent, and undetectable. Go ahead and ask your first question.
